@@ -6,7 +6,7 @@ Fardo was set to drop "Kiss and Tell" — a track that had TikTok completely lit
 
 The clips that leaked were killer, and the hype was real. Fans were counting down the days.
 
-But behind the scenes, the label ran into a wall. To finish the track, they needed clearance to use portions of a Katy Perry song. 
+But behind the scenes, they needed clearance to use portions of a Katy Perry song. 
 
 Her punk ass label declined the request, and without that clearance, the song couldn't move forward as originally intended.
 
