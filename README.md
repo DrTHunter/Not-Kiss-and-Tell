@@ -15,4 +15,4 @@ It's a shame the world won't get to hear it
 ## See Attached Files
 
 - [Download Not_Kiss_and_Tell.mp3](https://github.com/DrTHunter/Not-Kiss-and-Tell/raw/main/Music%20Files/Not_Kiss_and_Tell.mp3) (in the `Music Files` folder)
-
+- [Download Not_Kiss_and_Tell-Studio_Quality.wav](https://github.com/DrTHunter/Not-Kiss-and-Tell/raw/main/Music%20Files/Not_Kiss_and_Tell-Studio_Quality.wav) (studio quality, in the `Music Files` folder)
