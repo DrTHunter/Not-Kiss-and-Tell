@@ -14,6 +14,6 @@ It's a shame the world won't get to hear it
 
 ## See Attached Files
 
-- `Not-Kiss-and-Tell.mp3`
+- [Download Not_Kiss_and_Tell.mp3](https://github.com/DrTHunter/Not-Kiss-and-Tell/raw/main/Music%20Files/Not_Kiss_and_Tell.mp3) (in the `Music Files` folder)
 - `Not-Kiss-and-Tell.wav`
 
